@@ -1,3 +1,5 @@
+https://www.notion.so/FDU-82b7f0265fc743f7a9bbf32293495b52 
+
 Inspired by the "PKU Folk Lesson Information Collection", I started this project.
 
 It is said that the characteristics of our institute or our school are that there is no calendar year question: whether it is looking in the group or asking the senior student, it is often difficult to get the calendar year question.
